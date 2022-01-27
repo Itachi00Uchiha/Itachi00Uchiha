@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Itachi00Uchiha
-- 👀 I’m interested in ...anime
+- 👀 I’m interested in ...Learning new skill
 - 🌱 I’m currently learning ...python..beginner😥
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
